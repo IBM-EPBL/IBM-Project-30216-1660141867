@@ -4,3 +4,8 @@ Data Link - karish2002
 Data Link - ramyadevi2
 Data Link - swethaj1
 Data Link - krishlavanya1234
+Brainstorm and idea priorization
+Data Link - karish2002
+Data Link - ramyadevi2
+Data Link - swethaj1
+Data Link - krishlavanya1234
