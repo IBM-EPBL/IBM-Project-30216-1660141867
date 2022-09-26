@@ -1,6 +1,6 @@
 # IBM-Project-30216-1660141867
 Emerging Methods for Early Detection of Forest Fires
-
+Data Link - https://github.com/IBM-EPBL/IBM-Project-30216-1660141867/blob/main/empathy%20map%20for%20emerging%20methods%20for%20early%20detection%20of%20forest%20fire.pdf
 Data Link - karish2002
 Data Link - ramyadevi2
 Data Link - swethaj1
