@@ -25,3 +25,13 @@ Data Link - karish2002
 Data Link - ramyadevi2
 Data Link - swethaj1
 Data Link - krishlavanya1234
+Data Link - https://github.com/IBM-EPBL/IBM-Project-30216-1660141867/blob/main/Problem_solution_fit.docx
+Data Link - karish2002
+Data Link - ramyadevi2
+Data Link - swethaj1
+Data Link - krishlavanya1234
+Data Link - https://github.com/IBM-EPBL/IBM-Project-30216-1660141867/blob/main/solution%20architecture.docx
+Data Link - karish2002
+Data Link - ramyadevi2
+Data Link - swethaj1
+Data Link - krishlavanya1234
